@@ -1,3 +1,3 @@
 # KorekPlayApp
 # تطبيق كورك بلاي
-As of my last update in January 2023, I don’t have specific information about the “Korek Play App.” If it’s a new app or service launched after that date, I recommend checking the official app store or Korek Telecom’s website for the latest details and features.
+اعتبارًا من آخر تحديث لي في يناير 2023 ، ليس لدي معلومات محددة حول "تطبيق كورك بلاي". إذا كان تطبيقًا جديدًا أو خدمة تم إطلاقها بعد ذلك التاريخ ، أوصي بالتحقق من متجر التطبيقات الرسمي أو موقع Korek Telecom للحصول على أحدث التفاصيل والميزات.
